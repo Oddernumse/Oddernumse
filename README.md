@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Oddernumse
+- 👀 I’m interested in everything
+- 🌱 I’m currently learning practically nothing because im lazy
+- 💞️ I’m looking to collaborate on anything
+- 📫 How to reach me; idk use my discord Oddernumse#2929
