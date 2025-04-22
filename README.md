@@ -2,4 +2,4 @@
 - 👀 I’m interested in everything
 - 🌱 I’m currently learning anything i can get my hands on
 - 💞️ I’m looking to collaborate on anything
-- 📫 How to reach me; use my discord Oddernumse#2929, I respond quickly
+- 📫 How to reach me; use my discord Oddernumse, I respond quickly
